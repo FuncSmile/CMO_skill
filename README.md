@@ -1,1 +1,0 @@
-# nova-market-research-skill
